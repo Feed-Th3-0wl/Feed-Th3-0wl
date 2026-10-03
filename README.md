@@ -8,7 +8,7 @@
 
 </p> 
 <div align="center">
-✦ <a href="LIEN">sᴛʀᴀᴡᴘᴀɢᴇ<a> ✦
+✦ <a href="https://yourmysteryowly.straw.page">sᴛʀᴀᴡᴘᴀɢᴇ<a> ✦
 </div>
 <img src=https://i.postimg.cc/HL2sML3K/Sans-titre-120-20260930192342.png alt="Banner 2">
 
